@@ -1,1 +1,1 @@
-Sr Consultant [@Microsoft](https://www.microsoft.com/en-us/msservices/consulting) | ex-#Azure MVP | President [@Onetug](https://meetup.com/onetug) #OrlandoCC | Dystopian fiction fan | 1X engineer | #GoNoles | he/him
+Engineering @ [@Microsoft](https://www.microsoft.com/en-us/msservices/consulting) | ex-#Azure MVP | Organizer [@Onetug](https://meetup.com/onetug) #OrlandoCC | Dystopian fiction fan | 1X engineer | #GoNoles | he/him
